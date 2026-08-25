@@ -1,1 +1,1 @@
-click code ang zip download
+click code and pick zip download
